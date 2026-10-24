@@ -1,0 +1,1 @@
+Folder ini berisi kumpulan jurnal dan paper yang berkaitan dengan penelitian Tugas Akhir.
